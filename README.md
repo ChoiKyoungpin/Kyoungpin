@@ -3,7 +3,9 @@
 ### (+82)10-7167-5907
 ### choikb22@naver.com
 
-## Medicine
+## Project 
+### Medicine
 *
-## Soccer Cumunity 
+## Project
+### Soccer Cumunity 
 *
